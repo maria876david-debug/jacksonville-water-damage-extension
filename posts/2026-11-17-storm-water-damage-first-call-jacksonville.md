@@ -1,0 +1,3 @@
+# Water Damage After a Jacksonville Storm: The First Call That Saves Your Claim
+
+After a storm, the order of your calls decides how smooth your insurance claim goes. Before you call anyone, take photos and video of every damaged area — once cleanup starts, the evidence is gone. Then call your insurer to open the claim and get a claim number. Then call a water damage restoration company: the first 24 to 48 hours decide whether drying works or whether mould starts. Waiting until Monday, or until the water "dries on its own", is the most expensive decision in the whole process. Document first, claim second, dry fast. Full storm guide: https://waterdamagerestorationjacksonville.us
