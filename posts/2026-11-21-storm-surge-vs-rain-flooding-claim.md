@@ -1,0 +1,5 @@
+# Jacksonville Storm Surge vs Rain Flooding: Why the Difference Matters for Your Claim
+
+Not all Jacksonville flooding is the same water, and your insurance knows the difference even if you do not. Storm surge is water pushed in from the sea or the river by a storm; rain flooding is water that falls from the sky and has nowhere to go. A standard homeowners policy usually covers rain-driven water that comes through the roof or a broken window, but it does not cover water that rises from the ground - that needs a separate flood policy. This is why the first hours after a storm matter so much for a claim: photograph where the water came in, keep a note of the time it arrived, and do not throw away damaged items before the adjuster has seen them. Dry the house fast either way - mould starts in 24 to 48 hours - but know which policy you are claiming on before you file, because the wrong claim gets refused and wastes weeks.
+
+What to do in the first 24 hours: https://waterdamagerestorationjacksonville.us
